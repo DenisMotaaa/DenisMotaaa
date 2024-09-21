@@ -1,5 +1,5 @@
 # 💫 About Me:
-Me chamo Denis, sou estudante de análise de sistemas e foco no processo!!!
+Me chamo Denis, sou estudante de análise de sistemas sempre procurando aprender e evoluir e foco no processo!!!
 
 
 ## 🌐 Socials:
